@@ -1,1 +1,1 @@
-# Mailapp will release coming soon !!
+# Moilapp will be released soon !!
